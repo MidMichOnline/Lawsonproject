@@ -1,4 +1,4 @@
-### [Return to Tumblr](http://lawsonproject.tumblr.com/) / [Discuss ](https://gitter.im/MidMichOnline/Lawsonproject)/ [Send Email](mailto:midmichiganonline+lawsonproject@gmail.com) /
+### [Return to Tumblr](http://lawsonproject.tumblr.com/) | [Wordpress](https://lawsonproject.wordpress.com/2016/07/03/a-second-look-at-small-wonder/) | [Edit](https://midmichonline.quip.com/5blwA7tsU2si) | [Discuss ](https://gitter.im/MidMichOnline/Lawsonproject)| [Send Email](mailto:midmichiganonline+lawsonproject@gmail.com) |
 
 # A Second Look at “Small Wonder”
 
