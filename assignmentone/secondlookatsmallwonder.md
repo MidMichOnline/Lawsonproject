@@ -2,7 +2,7 @@
 
 # A Second Look at “Small Wonder”
 
-()[fixingabrain-800px.png]
+
 
 I remember killing time as a kid watching the syndicated shows which would air on the UHF channels on a Saturday afternoon. Usually, I would have turned on the TV out of sheer boredom and begin “surfing” the channels to see if anything good was on. Sometimes, I would turn on the TV in anticipation of something in particular—like a rerun of “Star Trek,” or later “Star Trek: The Next Generation”—and would catch the last few minutes of whatever happened to air before it.
 
