@@ -1,16 +1,5 @@
 # Summary
 
-* Volume 1: Getting Started
-
-
-##Blog
-
+* [Introduction](README.md)
 * [A Second Look at "Small Wonder"](assignmentone/secondlookatsmallwonder.md)
 
-##Resources
-
-##Articles
-
-##Information
-
-##Episodes
