@@ -2,7 +2,8 @@
 
 # A Second Look at “Small Wonder”
 
-[Image: https://midmichonline.quip.com/-/blob/KFJAAAPQbgs/1yrO5EAYLhmKHQmKS_kKLw]
+()[fixingabrain-800px.png]
+
 I remember killing time as a kid watching the syndicated shows which would air on the UHF channels on a Saturday afternoon. Usually, I would have turned on the TV out of sheer boredom and begin “surfing” the channels to see if anything good was on. Sometimes, I would turn on the TV in anticipation of something in particular—like a rerun of “Star Trek,” or later “Star Trek: The Next Generation”—and would catch the last few minutes of whatever happened to air before it.
 
 Some of the shows I remember watching on Saturdays were “Charles in Charge,” “Out of this World,” as well as the second-run syndicated programs like “Mork and Mindy.” For example, I watched reruns  of “Three's Company,” “Mork and Mindy,” and “Happy Days” in June 1993 on my last day of high school as a senior.
